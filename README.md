@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development 
 - 🌱 I’m currently learning front end development 
 - 💞️ I’m looking to collaborate on various projects.
-- 📫 How to reach me oluyomiifeoluwa6@gmail.com and 0691250613
+- 📫 How to reach me ifeoluwa252001@gmail.com and 0691250613
 - 😄 Pronouns: Her
 - ⚡ Fun fact: I love to learn new skills and I adapt to unforseen changes.
 
